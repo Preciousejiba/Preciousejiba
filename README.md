@@ -12,7 +12,7 @@
   - Open-source initiatives focusing on data-driven healthcare innovations.
     
 - 📫 How to reach me
-  - Email: preciousejiba1@gmail.com
+  - [Email:] (preciousejiba1@gmail.com)
   - [LinkedIn:](https://www.linkedin.com/in/precious-ejiba/)
     
 - 😄 Pronouns: ...she/her
