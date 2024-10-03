@@ -1,4 +1,4 @@
-- 👋 # **Hi, I’m Precious Ejiba**
+- 👋 #**Hi, I’m Precious Ejiba**
     Passionate about Healthcare Solutions
   
 - 👀 # **About Me**
